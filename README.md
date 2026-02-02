@@ -1,0 +1,2 @@
+# f8783a23-610f-4010-8996-a3064ad5689d-hero-1
+Hero section variant 1 for f8783a23-610f-4010-8996-a3064ad5689d
